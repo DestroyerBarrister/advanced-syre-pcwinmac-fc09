@@ -1,4 +1,4 @@
-# 
+# Seguro Advanced SystemCare plantillas para Mac OS | Profesional Advanced SystemCare plantillas para PC Windows. Con protección de privacidad y soporte de teclas rápidas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
